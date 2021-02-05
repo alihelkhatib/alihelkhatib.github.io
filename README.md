@@ -1,2 +1,0 @@
-# alihelkhatib.github.io
-Portfolio
